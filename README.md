@@ -1,4 +1,4 @@
-# Google Voice 中文教程
+# Google Voice 中文使用教程
 
 ► 联系方式
 * Telegram: [@ididhub](https://telegram.me/ididhub)
